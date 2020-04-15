@@ -10,6 +10,12 @@
 
 ![srcreenshot](screenshot4.jpg)
 
+![srcreenshot](screenshot8.jpg)
+
+![srcreenshot](screenshot9.jpg)
+
+![srcreenshot](screenshot10.jpg)
+
 ![srcreenshot](screenshot5.jpg)
 
 ![srcreenshot](screenshot6.jpg)
